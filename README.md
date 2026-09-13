@@ -1,16 +1,24 @@
-## Hi there 👋
-
-<!--
-**goobiethesnoobert/goobiethesnoobert** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-
-Here are some ideas to get you started:
-
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+<p align="center">
+<img width="20" src="https://files.catbox.moe/4e1dci.gif" alt="bunny waving">  $\Large\color{#c8aeeb}{\textsf{greetings!}}$  <img width="20" src="https://files.catbox.moe/v6u5b9.gif" alt="lavender?">
+  <br>
+  <br>
+  $\color{#af99cc}{\textsf{i'm goobie, but i also go by aspen or azure..}}$
+  <br>
+  $\small\color{#8c79a6}{\textsf{aaaand a lot of other names, but those are the main ones.}}$
+  <br>
+  <br>
+    $\color{#af99cc}{\textsf{she/he works for me? i think? gender questioning sorry lol}}$
+  <br>
+   $\small\color{#8c79a6}{\textsf{prns page is in linked socials if you need it!}}$
+<br>
+  <br>
+   $\color{#af99cc}{\textsf{you may have noticed im uhhhh. azure forsaken kin. ya. neutral to doubles and very very positive about other forsakenlings feel free 2 say hai !!!!}}$
+  <br>
+  <br>
+  <br>
+<img width="400" src="https://files.catbox.moe/j576qi.jpg" alt="art by just-a-joey on tumblr :D">
+<br>
+<br>
+   $\small\color{#8c79a6}{\textsf{dont be fooled i believe in platonic azuretime as an aroace azure}}$
+   <br>
+      $\small\color{#58476e}{\textsf{i just really like this person's art . see just-a-joey on tumblr or i.v.y on youtube}}$
