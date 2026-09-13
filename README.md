@@ -25,3 +25,9 @@
    $\small\color{#8c79a6}{\textsf{dont be fooled i believe in platonic azuretime as an aroace azure}}$
    <br>
       $\small\color{#58476e}{\textsf{i just really like this person's art . see just-a-joey on tumblr or i.v.y on youtube}}$
+<br>
+<br>
+  $\small\color{#334a36}{\textsf{below are userboxes feel free 2 ignore!}}$
+  <br> 
+  <br>
+<img width="250" src="https://files.catbox.moe/feq89h.jpg" alt="this user loves rainy days"> <img width="210" src="https://files.catbox.moe/8igdnq.jpg" alt="this user is scared of the future"> <img width="140" src="https://files.catbox.moe/ob63gi.jpg" alt="this user is a bunny"> 
