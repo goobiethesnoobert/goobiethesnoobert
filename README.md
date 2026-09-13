@@ -2,9 +2,12 @@
 <img width="20" src="https://files.catbox.moe/4e1dci.gif" alt="bunny waving">  $\Large\color{#c8aeeb}{\textsf{greetings!}}$  <img width="20" src="https://files.catbox.moe/v6u5b9.gif" alt="lavender?">
   <br>
   <br>
-  $\color{#af99cc}{\textsf{i'm goobie, but i also go by aspen or azure..}}$
+  <img width="100" src="https://komarev.com/ghpvc/?username=goobiethesnoobert&label=visitors&color=354737">
   <br>
-  $\small\color{#8c79a6}{\textsf{aaaand a lot of other names, but those are the main ones.}}$
+  <br>
+  $\color{#547558}{\textsf{i'm goobie, but i also go by aspen or azure..}}$
+  <br>
+  $\small\color{#334a36}{\textsf{aaaand a lot of other names, but those are the main ones.}}$
   <br>
   <br>
     $\color{#af99cc}{\textsf{she/he works for me? i think? gender questioning sorry lol}}$
@@ -12,7 +15,7 @@
    $\small\color{#8c79a6}{\textsf{prns page is in linked socials if you need it!}}$
 <br>
   <br>
-   $\color{#af99cc}{\textsf{you may have noticed im uhhhh. azure forsaken kin. ya. neutral to doubles and very very positive about other forsakenlings feel free 2 say hai !!!!}}$
+   $\color{#547558}{\textsf{you may have noticed im uhhhh. azure forsaken kin. ya. neutral to doubles and very very positive about other forsakenlings feel free 2 say hai !!!!}}$
   <br>
   <br>
   <br>
