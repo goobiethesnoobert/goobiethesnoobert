@@ -17,7 +17,7 @@
   <br>
    $\color{#547558}{\textsf{you may have noticed im uhhhh. azure forsaken kin. ya. neutral to doubles and very very positive about other forsakenlings feel free 2 say hai !!!!}}$
   <br>
-  $\small\color{#334a36}{\textsf{c+h and interact freely im very friendly just awkward.. ALSO A NEWGEN PLZ BE PATIENT D:}}$
+  $\small\color{#334a36}{\textsf{c+h and interact freely im very friendly just awkward.. im lowk rlly lonely after roblox chat bs}}$
   <br>
   <br>
   <br>
