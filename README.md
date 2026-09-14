@@ -10,21 +10,21 @@
   $\small\color{#334a36}{\textsf{aaaand a lot of other names, but those are the main ones.}}$
   <br>
   <br>
-    $\color{#af99cc}{\textsf{she/he works for me? i think? gender questioning sorry lol}}$
+    $\color{#af99cc}{\textsf{she/he gender questioning.... aegoromantic + apothisexual}}$
   <br>
    $\small\color{#8c79a6}{\textsf{prns page is in linked socials if you need it!}}$
 <br>
   <br>
    $\color{#547558}{\textsf{you may have noticed im uhhhh. azure forsaken kin. ya. neutral to doubles and very very positive about other forsakenlings feel free 2 say hai !!!!}}$
   <br>
-  $\small\color{#334a36}{\textsf{c+h and interact freely im very friendly}}$
+  $\small\color{#334a36}{\textsf{c+h and interact freely im very friendly just awkward.. ALSO A NEWGEN PLZ BE PATIENT D:}}$
   <br>
   <br>
   <br>
 <img width="400" src="https://files.catbox.moe/j576qi.jpg" alt="art by just-a-joey on tumblr :D">
 <br>
 <br>
-   $\small\color{#8c79a6}{\textsf{dont be fooled i believe in platonic azuretime as an aroace azure}}$
+   $\small\color{#8c79a6}{\textsf{insert queerplatonic azuretime propaganda}}$
    <br>
       $\small\color{#58476e}{\textsf{i just really like this person's art . see just-a-joey on tumblr or i.v.y on youtube}}$
 <br>
