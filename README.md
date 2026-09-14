@@ -15,7 +15,11 @@
    $\small\color{#8c79a6}{\textsf{prns page is in linked socials if you need it!}}$
 <br>
   <br>
-   $\color{#547558}{\textsf{you may have noticed im uhhhh. azure forsaken kin. or not, im other things sometimes. anyway neutral to doubles and very very positive about other forsakenlings feel free 2 say hai !!!!}}$
+   $\color{#547558}{\textsf{you may have noticed im uhhhh. azure forsaken kin.}}$
+  <br> 
+   $\color{#547558}{\textsf{or not, im other things sometimes.}}$
+  <br>
+   $\color{#547558}{\textsf{anyway neutral to doubles and very very positive about other forsakenlings feel free 2 say hai !!!!}}$
   <br>
   $\small\color{#334a36}{\textsf{c+h and interact freely im very friendly just awkward.. im lowk rlly lonely after roblox chat bs}}$
   <br>
