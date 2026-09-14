@@ -26,7 +26,7 @@
 <br>
    $\small\color{#8c79a6}{\textsf{insert queerplatonic azuretime propaganda}}$
    <br>
-      $\small\color{#58476e}{\textsf{i just really like this person's art . see just-a-joey on tumblr or i.v.y on youtube}}$
+      $\small\color{#58476e}{\textsf{i really like this person's art . see just-a-joey on tumblr or i.v.y on youtube}}$
 <br>
 <br>
   $\small\color{#334a36}{\textsf{below are userboxes feel free 2 ignore!}}$
