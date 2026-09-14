@@ -17,6 +17,8 @@
   <br>
    $\color{#547558}{\textsf{you may have noticed im uhhhh. azure forsaken kin. ya. neutral to doubles and very very positive about other forsakenlings feel free 2 say hai !!!!}}$
   <br>
+  $\small\color{#334a36}{\textsf{c+h and interact freely im very friendly}}$
+  <br>
   <br>
   <br>
 <img width="400" src="https://files.catbox.moe/j576qi.jpg" alt="art by just-a-joey on tumblr :D">
