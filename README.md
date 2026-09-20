@@ -17,7 +17,7 @@
   <br>
    $\color{#547558}{\textsf{you may have noticed im uhhhh. azure forsaken kin.}}$
   <br> 
-   $\color{#547558}{\textsf{or not, im other things sometimes.}}$
+   $\color{#547558}{\textsf{or not, im other things sometimes! many characters i resonate with..}}$
   <br>
    $\color{#547558}{\textsf{anyway neutral to doubles and very very positive about other forsakenlings feel free 2 say hai !!!!}}$
   <br>
