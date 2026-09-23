@@ -21,7 +21,7 @@
   <br>
    $\color{#547558}{\textsf{anyway neutral to doubles and very very positive about other forsakenlings feel free 2 say hai !!!!}}$
   <br>
-  $\small\color{#334a36}{\textsf{c+h and interact freely im very friendly just awkward.. im lowk rlly lonely after roblox chat bs}}$
+  $\small\color{#334a36}{\textsf{c+h and interact freely im very friendly just awkward.. im lowk rlly lonely after roblox chat bs. reach me @piperxd on disc!}}$
   <br>
   <br>
   <br>
